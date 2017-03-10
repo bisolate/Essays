@@ -1,0 +1,3 @@
+I grew up as a clever boy. I got full grades without any effort and got hold of any ideas without any difficulty. Probably most of your share the same experience. Just as probably, when you go to a higher level, you come to to realize that the edge is somehow lost. You then start to wonder if you are really that clever.
+
+For me that's what happened when I started high school. Or the third year at middle school. The feeling didn't come overnight, but at the back of your mind, you kind of fear that your brain is not so quick at grasping all those new ideas, especially math, physics and chemistry. Then you start to pay a heavy price for being clever. 
